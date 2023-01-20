@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Narendra-Simha
-- 👀 I’m interested in playing sports, watching thrilling movies, reading books, exploring new ideas
+- 👀 I’m interested in solving logical problems playing sports, watching thriller movies, reading books, exploring new ideas,coding.
 - 🌱 I’m currently studying at NIT Rourkela, 3rd Year Btech Computer Science and Engneering 
 - 📫 How to reach me:- Gmail:- narendrasimhamekala18@gmail.com
 
